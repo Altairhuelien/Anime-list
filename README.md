@@ -1,1 +1,1 @@
-# Anime-list-
+# Anime-list
